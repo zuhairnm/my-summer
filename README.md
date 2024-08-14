@@ -8,4 +8,4 @@ Last year I didn' really pay attention or do well in this class. Which is why th
 ##  Fun Fact About Yourself
 When I was about 5 and six I broke the same arm twice in one year. The first time I broke my arm I was running and fell really hard on the sidewalk. And the second time I was siting on like a window and fell out and fell on my arm. 
 ##  Summer Travel Experiences 
-Over the summer I went 
+In June I went to Oxnard beach for a few days. I went mostly to the beach with family. And watched movies at my aunts hosue. In July I went on a cruise for 2 weeks to Alaska and Canada. We stopped at a few cities. And when we stopped there we got off the boat and did stuff there. Like walking around the city. On our first stop a bus took us to a glacier and it was raing alot and we hiked there. On the second stop a bus took us to Canada on a few hiking trails. And on our last stop before we went back we just walked around the city and I got a few sweaters from the shops there. 
